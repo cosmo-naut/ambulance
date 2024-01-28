@@ -1,3 +1,1 @@
-My boss tells me they want me to drive faster
-Because everyone keeps dying before we get to the hospital
-So why did they write 'Patient Transport' on the side of the vehicle?
+My boss tells me they want me to be quicker because everyone keeps dying before we get to the hospital. If I'm supposed to go drive the ambulance faster why did they write 'Patient Transport' on the side?
